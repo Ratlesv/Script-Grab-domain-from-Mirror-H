@@ -12,7 +12,7 @@ https://mirror-h.org/search/hacker/3786/
            
 This is ID : 3786
 
-# Telegram : @Capitos_Kamal
+# Telegram : @CapitosKamal
 
 # Support me
 
